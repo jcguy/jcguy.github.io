@@ -1,1 +1,0 @@
-# jcguy.github.io
